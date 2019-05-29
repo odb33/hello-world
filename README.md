@@ -1,2 +1,2 @@
 # hello-world
-3 lives ive died im and old dirty bastard 
+3 lives ive died I am an old dirty bastard 
